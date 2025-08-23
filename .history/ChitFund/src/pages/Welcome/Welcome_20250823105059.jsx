@@ -1,0 +1,1 @@
+c:\Users\DELL\AppData\Local\Packages\5319275A.WhatsAppDesktop_cv1g1gvanyjgm\TempState\5CBBA2D075F0D1648E0851E1467BA79F\WhatsApp Image 2025-08-23 at 10.32.41_72cee340.jpg
